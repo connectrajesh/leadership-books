@@ -41,6 +41,14 @@ How to motivate your team through challenges
 
 How to metabolize adversity as a leader
 
+## 11. Tribes by Seth Godin
+
+How to lead people through influence vs authority
+
+## 12. Nine Lies About Work by Marcus Buckinham, Ashley Goodall
+
+How to challenge conventional management wisdom
+
 
 
 
